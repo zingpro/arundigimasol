@@ -1,0 +1,2 @@
+# arundigimasol
+ZingPro Consulting is an outsourced business development company that offers complete flexibility to your business, whilst giving you the additional manpower and skills you need to help accelerate your growth.  When companies look to grow their business globally, they often neglect India due to several problems entering the market presents, despite the product or the service being in high demand in the region. ZingPro services are designed to provide a solution to these problems and generate sufficient revenue from the region to justify further investment.
